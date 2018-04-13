@@ -1,0 +1,2 @@
+# SNEK
+foi caralho
